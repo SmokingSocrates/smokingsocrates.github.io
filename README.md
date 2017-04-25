@@ -1,0 +1,2 @@
+# smokingsocrates.github.io
+Blog
